@@ -1,315 +1,318 @@
-<h1>印尼主权财富基金Danantara拟发行美元债券 据悉已聘请花旗等机构经办</h1>
-<p><strong>更新时间：</strong>2026年08月13日 14时19分08秒 (UTC+8)</p>
-<p>栏目：AI Builders Digest　主题：印尼主权财富基金Danantara拟发行美元债券 据悉已聘请花旗等机构经办</p>
+<h1>北京首个医美广告新规正式发布 叫停医美花式违规宣传</h1>
+<p><strong>更新时间：</strong>2026年08月25日 16时21分45秒 (UTC+8)</p>
+<p>栏目：AI Builders Digest　主题：北京首个医美广告新规正式发布 叫停医美花式违规宣传</p>
 <h2>摘要</h2>
-<p>印尼主权财富基金Danantara已就潜在的全球美元债发行交易聘请银行，在面临经济逆风之际测试投资者的兴趣。 据知情人士称，Danantara聘请花旗集团、星展银行、汇丰、Mandiri Securities和渣打银行作为联席主经办行和联席簿记行，将于周三起在亚洲、欧洲和美国安排一系列固定收益投资者会议和电话会。由于涉及非公开信息，知情人士要求匿名。该承销安排并不意味着交易一定会完成。 这笔潜在发债交易正逢投资者对印尼总统普拉博沃的一些</p>
+<p>近日，北京市朝阳区市场监督管理局发布《北京市朝阳区市场监督管理局医疗美容行业广告宣传合规指引(试行)》，这是北京市首个医疗美容行业广告专项合规指引，为辖区医美机构广告宣传划定清晰合规边界，对违规的医美广告进行明确规范。《北京市朝阳区市场监督管理局医疗美容行业广告宣传合规指引(试行)》中，规范主体主要为北京市朝阳区行政区域内的医疗美容机构。《指引》中明确，医疗美容广告属于医疗广告，广告主须依法取得医疗机构执业许可证或诊所备案凭证才能发布或</p>
 <h2>正文</h2>
-<p>印尼主权财富基金Danantara已就潜在的全球美元债发行交易聘请银行，在面临经济逆风之际测试投资者的兴趣。</p>
-<p>据知情人士称，Danantara聘请花旗集团、星展银行、汇丰、Mandiri Securities和渣打银行作为联席主经办行和联席簿记行，将于周三起在亚洲、欧洲和美国安排一系列固定收益投资者会议和电话会。</p>
-<p>由于涉及非公开信息，知情人士要求匿名。</p>
-<p>该承销安排并不意味着交易一定会完成。</p>
-<p>这笔潜在发债交易正逢投资者对印尼总统普拉博沃的一些政策担忧加剧，穆迪和惠誉此前均将印尼的信用评级展望下调至负面。</p>
-<p>普拉博沃去年成立了Danantara，旨在提高印尼实力雄厚的国有企业的效率，将股息再投资，并吸引外资进入这个东南亚最大经济体的高影响力项目。</p>
-<p>责任编辑：于健 SF069</p>
+<p>近日，北京市朝阳区市场监督管理局发布《北京市朝阳区市场监督管理局医疗美容行业广告宣传合规指引(试行)》，这是北京市首个医疗美容行业广告专项合规指引，为辖区医美机构广告宣传划定清晰合规边界，对违规的医美广告进行明确规范。</p>
+<p>《北京市朝阳区市场监督管理局医疗美容行业广告宣传合规指引(试行)》中，规范主体主要为北京市朝阳区行政区域内的医疗美容机构。</p>
+<p>《指引》中明确，医疗美容广告属于医疗广告，广告主须依法取得医疗机构执业许可证或诊所备案凭证才能发布或者委托发布医疗美容广告。</p>
+<p>虚假宣传、夸大宣传、宣扬容貌焦虑，以患者名义或者形象进行诊疗前后效果对比等广告均属于违规广告情形。</p>
+<p>北京市朝阳区市场监督管理局广告监督管理科科长 任娇：一些医疗美容机构签约一些“网红”，通过“种草”形式或者“网红”到店进行体验分享的形式，进行变相发布医疗广告。</p>
+<p>这种形式非常普遍，但是是违规的情况，这种形式是比较隐蔽的，需要执法人员深入地去查才能发现违规在哪里。</p>
+<p>消费者 赵敏敏：有一些消费者没有辨别能力，可能会被误导。</p>
+<p>《指引》会让一些消费者树立正确认知，第二个是在选择方面可能会有更加清晰的判断。</p>
+<p>据了解，《指引》是在现有法律法规的框架下对企业行为进行更明确的规范。</p>
+<p>北京市朝阳区市场监督管理局广告监督管理科科长 任娇：把针对医疗美容机构相关的法律法规，以清单的形式给到企业，让企业可以明白自己的边界在哪里，对明知违法还故意去做的情况，严格惩戒，对违法行为进行立案查处。</p>
 <h2>内链</h2>
-<h3>因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？</h3>
-<p>联想Q1营收同比增长43%创历史新高<br><br>来源：<a href="https://github.com/khoy-coder/jiankang202608/blob/main/20260813-qkjcjrr7.md">https://github.com/khoy-coder/jiankang202608/blob/main/20260813-qkjcjrr7.md</a></p>
-<h3>章若楠被金靖穿搭可爱到受不了</h3>
-<p>新能源汽车迎来两个“首次”突破<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/wenhua202608/blob/main/20260813-3w38n2kv.md">https://github.com/ramonaviviansbkhfb9905-create/wenhua202608/blob/main/20260813-3w38n2kv.md</a></p>
-<h3>飞两万公里去南美洲 以为到了四川</h3>
-<p>谁在给可乐“判死刑”<br><br>来源：<a href="https://github.com/vov6fghgsd/20260718_17/blob/main/20260813-l15vzu0g.md">https://github.com/vov6fghgsd/20260718_17/blob/main/20260813-l15vzu0g.md</a></p>
-<h3>湖北老河口小清河河水上涨玉米被淹没</h3>
-<p>《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？<br><br>来源：<a href="https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260813-v8eksx0e.md">https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260813-v8eksx0e.md</a></p>
-<h3>骑行辅警被刺死 父亲发声</h3>
-<p>《影之刃零》预购开启，11分钟实机预告公开<br><br>来源：<a href="https://github.com/as85hea-oss/caodi202608/blob/main/20260813-d7k95v2f.md">https://github.com/as85hea-oss/caodi202608/blob/main/20260813-d7k95v2f.md</a></p>
-<h3>黑龙江二龙湖上演鱼跃龙门奇观</h3>
-<p>披荆斩棘的哥哥<br><br>来源：<a href="https://github.com/dmwke4-ops/ziran202608/blob/main/20260813-r0jjvu3s.md">https://github.com/dmwke4-ops/ziran202608/blob/main/20260813-r0jjvu3s.md</a></p>
-<h3>A股“再平衡”进行时</h3>
-<p>北京朝阳水务局用科技手段测水位流量<br><br>来源：<a href="https://github.com/linhh234/20260718_17/blob/main/20260813-37jbs7vm.md">https://github.com/linhh234/20260718_17/blob/main/20260813-37jbs7vm.md</a></p>
-<h3>蓝营要求查清民进党是否发灾难财</h3>
-<p>EWC CS小蜜蜂横扫100T<br><br>来源：<a href="https://github.com/sau64l-source/yule202608/blob/main/20260813-fmzojvz7.md">https://github.com/sau64l-source/yule202608/blob/main/20260813-fmzojvz7.md</a></p>
-<h3>分手7个月22岁男大学生杀害前女友</h3>
-<p>一见倾心<br><br>来源：<a href="https://github.com/zm166h-bit/jiaoyu202608/blob/main/20260813-thw2ipae.md">https://github.com/zm166h-bit/jiaoyu202608/blob/main/20260813-thw2ipae.md</a></p>
-<h3>梁家辉在人民日报撰文</h3>
-<p>湖南省运会摔跤赛场教练比队员还急<br><br>来源：<a href="https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260813-5xxhlu0i.md">https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260813-5xxhlu0i.md</a></p>
-<h3>逃狱兄弟</h3>
-<p>沈腾拿奖？年度神作？这部电影后劲太大，看完直呼够味儿！《欢迎来龙餐馆》【以片概全】<br><br>来源：<a href="https://github.com/9kd5o4d-hash/dianying202608/blob/main/20260806-x5yd9jxu.md">https://github.com/9kd5o4d-hash/dianying202608/blob/main/20260806-x5yd9jxu.md</a></p>
-<h3>飞龙在天！</h3>
-<p>女子称穿一次性内裤走路时脱落<br><br>来源：<a href="https://github.com/9kd5o4d-hash/keji202608/blob/main/20260807-zbihbmty.md">https://github.com/9kd5o4d-hash/keji202608/blob/main/20260807-zbihbmty.md</a></p>
-<h3>沈腾感谢榜一大姐马丽</h3>
-<p>白宫新闻秘书月底离任<br><br>来源：<a href="https://github.com/9kd5o4d-hash/shishang202608/blob/main/20260809-e8d5rg99.md">https://github.com/9kd5o4d-hash/shishang202608/blob/main/20260809-e8d5rg99.md</a></p>
-<h3>老蒋对话耿同学</h3>
-<p>医保局公布住院人次排名第一的疾病<br><br>来源：<a href="https://github.com/9kd5o4d-hash/youxi202608/blob/main/20260810-u0b0y3v8.md">https://github.com/9kd5o4d-hash/youxi202608/blob/main/20260810-u0b0y3v8.md</a></p>
-<h3>为什么《影之刃：零》的11分钟宣传片中，杀手选择和魂在车上决斗，而不杀马？</h3>
-<p>太平天国的失败是因为洪秀全老糊涂了吗？<br><br>来源：<a href="https://github.com/9w79h87-cmd/dianying202608/blob/main/20260812-hspwkfi8.md">https://github.com/9w79h87-cmd/dianying202608/blob/main/20260812-hspwkfi8.md</a></p>
-<h3>男子双腿被绞断 20个月后恢复行走</h3>
-<p>女子花8万做试管被推进简易房手术<br><br>来源：<a href="https://github.com/9w79h87-cmd/keji202608/blob/main/20260813-yyj9rne8.md">https://github.com/9w79h87-cmd/keji202608/blob/main/20260813-yyj9rne8.md</a></p>
-<h3>赛博华佗！病毒吧吧主无偿帮人</h3>
-<p>员工台风天临时请假被罚近1500元<br><br>来源：<a href="https://github.com/9w79h87-cmd/tiyu202608/blob/main/20260801_ycsju.md">https://github.com/9w79h87-cmd/tiyu202608/blob/main/20260801_ycsju.md</a></p>
-<h3>檀健次谢却山究竟有多少神图</h3>
-<p>3万全款买40平房是机会还是坑<br><br>来源：<a href="https://github.com/9w79h87-cmd/yule202608/blob/main/20260804_xbsam.md">https://github.com/9w79h87-cmd/yule202608/blob/main/20260804_xbsam.md</a></p>
-<h3>普京：亚太形成新军事政治集团</h3>
-<p>卫诗雅和老公同框<br><br>来源：<a href="https://github.com/abd3f9h8-cpu/fangchan202608/blob/main/20260807-piwm0a2u.md">https://github.com/abd3f9h8-cpu/fangchan202608/blob/main/20260807-piwm0a2u.md</a></p>
-<h3>长期血糖失控可能会经历什么</h3>
-<p>新规：禁止在居民楼开油烟餐饮<br><br>来源：<a href="https://github.com/abd3f9h8-cpu/lvyou202608/blob/main/20260808-zxmuvmqe.md">https://github.com/abd3f9h8-cpu/lvyou202608/blob/main/20260808-zxmuvmqe.md</a></p>
-<h3>媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？</h3>
-<p>威少离开雷霆后7年换了6队<br><br>来源：<a href="https://github.com/abd3f9h8-cpu/tiyu202608/blob/main/20260810-jrminaip.md">https://github.com/abd3f9h8-cpu/tiyu202608/blob/main/20260810-jrminaip.md</a></p>
-<h3>🦊T仔！明天见🕷️</h3>
-<p>学者：“疑美论”已在台年轻世代发酵<br><br>来源：<a href="https://github.com/abd3f9h8-cpu/yule202608/blob/main/20260812-03xnfgik.md">https://github.com/abd3f9h8-cpu/yule202608/blob/main/20260812-03xnfgik.md</a></p>
-<h3>我的前半生平儿头比同龄人大</h3>
-<p>蓝营要求查清民进党是否发灾难财<br><br>来源：<a href="https://github.com/adaleefayeocgzyd5066-lang/wenhua202608/blob/main/20260806-kez57uf4.md">https://github.com/adaleefayeocgzyd5066-lang/wenhua202608/blob/main/20260806-kez57uf4.md</a></p>
-<h3>新规：禁止在居民楼开油烟餐饮</h3>
-<p>如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260812-mhahhn5c.md">https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260812-mhahhn5c.md</a></p>
-<h3>徐静雨评威少退役</h3>
-<p>哥伦比亚地震已致265人死亡<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260808-pkx9evfy.md">https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260808-pkx9evfy.md</a></p>
-<h3>阚清子手机壳是胖子住嘴</h3>
-<p>73岁奶奶将成中国首批太空游客<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/xinwen202608/blob/main/20260801_kgmqt.md">https://github.com/adelynmikaelakcgnmt0762-spec/xinwen202608/blob/main/20260801_kgmqt.md</a></p>
-<h3>媒体：提高可负担性夯实社保实缴制</h3>
-<p>中国退役军人受邀训练国外安保员工<br><br>来源：<a href="https://github.com/adleycatalinawxxnqj0188-byte/keji202608/blob/main/20260810-nvqgste8.md">https://github.com/adleycatalinawxxnqj0188-byte/keji202608/blob/main/20260810-nvqgste8.md</a></p>
-<h3>小片片聊欢迎来龙餐馆</h3>
-<p>山西一医院实习护士晒患者隐私照，院方称将严肃处理，具体怎么回事？为什么这类事时有发生，问题出在哪？<br><br>来源：<a href="https://github.com/albintuy62-byte/20260718_01/blob/main/20260724_73npk.md">https://github.com/albintuy62-byte/20260718_01/blob/main/20260724_73npk.md</a></p>
-<h3>分手7个月22岁男大学生杀害前女友</h3>
-<p>⚡泥 肘⚡<br><br>来源：<a href="https://github.com/albintuy62-byte/20260718_03/blob/main/20260811-en7watdt.md">https://github.com/albintuy62-byte/20260718_03/blob/main/20260811-en7watdt.md</a></p>
-<h3>《癫佬外传》第一季合集</h3>
-<p>胖东来能搬小商户搬不动<br><br>来源：<a href="https://github.com/albintuy62-byte/20260718_06/blob/main/20260806_7a2mp.md">https://github.com/albintuy62-byte/20260718_06/blob/main/20260806_7a2mp.md</a></p>
+<h3>特厨探店丨北京最难订?!吃到了能记一生的炒饭!-龙庭</h3>
+<p>模特陈瑜与林依轮儿子公开恋情<br><br>来源：<a href="https://github.com/ero9esx-creator/tiyu202608/blob/main/20260825-tbssras2.md">https://github.com/ero9esx-creator/tiyu202608/blob/main/20260825-tbssras2.md</a></p>
+<h3>印度高管赴华签证过审率骤降</h3>
+<p>张凌赫母校校长晒To签好骄傲<br><br>来源：<a href="https://github.com/miot0t-create/dianying202608/blob/main/20260825-4617r2sa.md">https://github.com/miot0t-create/dianying202608/blob/main/20260825-4617r2sa.md</a></p>
+<h3>【纪录片TV】大乾乾被撞成两半了……</h3>
+<p>扶不扶 不能再成为社会阴影<br><br>来源：<a href="https://github.com/b6y02faw-maker/keji202608/blob/main/20260825-g45tqg76.md">https://github.com/b6y02faw-maker/keji202608/blob/main/20260825-g45tqg76.md</a></p>
+<h3>中美1.5轨对话今天在北京举行</h3>
+<p>男子深夜下水打捞手机被困水中一夜<br><br>来源：<a href="https://github.com/kendalljuliettedvcyso3265-web/ziran202608/blob/main/20260825-v3va295n.md">https://github.com/kendalljuliettedvcyso3265-web/ziran202608/blob/main/20260825-v3va295n.md</a></p>
+<h3>蜘蛛侠:英雄归来</h3>
+<p>小米玄戒O3芯片前瞻上手：外星科技！<br><br>来源：<a href="https://github.com/9w79h87-cmd/meishi202608/blob/main/20260825-c3nncgk5.md">https://github.com/9w79h87-cmd/meishi202608/blob/main/20260825-c3nncgk5.md</a></p>
+<h3>宏胜集团人力资源部部长寇静被免职</h3>
+<p>元彪现身陕西西岳庙<br><br>来源：<a href="https://github.com/dmwke4-ops/ziran202608/blob/main/20260825-n2tqc3bf.md">https://github.com/dmwke4-ops/ziran202608/blob/main/20260825-n2tqc3bf.md</a></p>
+<h3>一辆汽车冲入西湖 景区回应</h3>
+<p>运动可以解决生活中很多问题<br><br>来源：<a href="https://github.com/mejiastanle/20260718_17/blob/main/20260825-0i6dews8.md">https://github.com/mejiastanle/20260718_17/blob/main/20260825-0i6dews8.md</a></p>
+<h3>一条标准轨如何嵌进越南的贸易选择</h3>
+<p>千与千寻<br><br>来源：<a href="https://github.com/asadw0454/20260718_14/blob/main/20260825-g7x3bx6w.md">https://github.com/asadw0454/20260718_14/blob/main/20260825-g7x3bx6w.md</a></p>
+<h3>肖战宁艺卓金硕珍Gucci新地广</h3>
+<p>人形机器人百米障碍赛决赛<br><br>来源：<a href="https://github.com/kategeorgiaxtgxfl9771-lab/guangming202608/blob/main/20260825-t02e3zf5.md">https://github.com/kategeorgiaxtgxfl9771-lab/guangming202608/blob/main/20260825-t02e3zf5.md</a></p>
+<h3>女子7年没拔洗衣机插头引发火灾</h3>
+<p>你的胆子真是肥嘟嘟的<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260825-8m6arg9y.md">https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260825-8m6arg9y.md</a></p>
+<h3>一辆汽车冲入西湖 景区回应</h3>
+<p>特朗普对人民大会堂情有独钟<br><br>来源：<a href="https://github.com/linhh234/20260718_07/blob/main/20260727_0qg2d.md">https://github.com/linhh234/20260718_07/blob/main/20260727_0qg2d.md</a></p>
+<h3>你的胆子真是肥嘟嘟的</h3>
+<p>董明珠办技工学校背后<br><br>来源：<a href="https://github.com/linhh234/20260718_09/blob/main/20260718_1av32.md">https://github.com/linhh234/20260718_09/blob/main/20260718_1av32.md</a></p>
+<h3>索尼发邮件重申「数字游戏不属于玩家」，账号封禁就全清零，你怎么看待这波操作？</h3>
+<p>花了几万块办健身卡请私教，最后还是没瘦下来，是我的问题还是健身房的问题？<br><br>来源：<a href="https://github.com/linhh234/20260718_10/blob/main/20260819-u8caz0ve.md">https://github.com/linhh234/20260718_10/blob/main/20260819-u8caz0ve.md</a></p>
+<h3>扶老人被索赔店主支付的1.9万获返还</h3>
+<p>AI短剧《非妖哉》导演：1集成本1万<br><br>来源：<a href="https://github.com/linhh234/20260718_12/blob/main/20260813-5hfksbbm.md">https://github.com/linhh234/20260718_12/blob/main/20260813-5hfksbbm.md</a></p>
+<h3>电动自行车时速限制拟上调为20公里</h3>
+<p>特朗普接连晒三张与金正恩合照<br><br>来源：<a href="https://github.com/linhh234/20260718_14/blob/main/20260807-w4mczd68.md">https://github.com/linhh234/20260718_14/blob/main/20260807-w4mczd68.md</a></p>
+<h3>人形机器人百米障碍赛决赛</h3>
+<p>第四集 | 🐧雷斯：“我变成御姐了？！”🐧<br><br>来源：<a href="https://github.com/linhh234/20260718_16/blob/main/20260731_qu6m4.md">https://github.com/linhh234/20260718_16/blob/main/20260731_qu6m4.md</a></p>
+<h3>为什么说23点后睡觉的人亏大了</h3>
+<p>烟幕弹，连成片！弹幕不也得连成片啊～<br><br>来源：<a href="https://github.com/linhh234/20260718_18/blob/main/20260724_nuwl1.md">https://github.com/linhh234/20260718_18/blob/main/20260724_nuwl1.md</a></p>
+<h3>流金岁月</h3>
+<p>40岁飞人博尔特求婚成功<br><br>来源：<a href="https://github.com/linhh234/20260718_19/blob/main/20260823-gbzh2k5g.md">https://github.com/linhh234/20260718_19/blob/main/20260823-gbzh2k5g.md</a></p>
+<h3>急先锋</h3>
+<p>现实版好柿多蘑来了<br><br>来源：<a href="https://github.com/linhh234/we561z4ja/blob/main/20260714_o4u0h.md">https://github.com/linhh234/we561z4ja/blob/main/20260714_o4u0h.md</a></p>
+<h3>闭店通知</h3>
+<p>网传1.9万获返还 遭索赔家属称不知情<br><br>来源：<a href="https://github.com/malaysiamileyetmynx3953-sketch/caodi202608/blob/main/20260818-40uwkzsw.md">https://github.com/malaysiamileyetmynx3953-sketch/caodi202608/blob/main/20260818-40uwkzsw.md</a></p>
+<h3>诺兰为什么要弱化《奥德赛》原著中的幽默、情色与荒诞，拍得如此严肃？</h3>
+<p>为什么说23点后睡觉的人亏大了<br><br>来源：<a href="https://github.com/malaysiamileyetmynx3953-sketch/shenghuo202608/blob/main/20260812-jvowst3q.md">https://github.com/malaysiamileyetmynx3953-sketch/shenghuo202608/blob/main/20260812-jvowst3q.md</a></p>
+<h3>明星大侦探第四季</h3>
+<p>流金岁月<br><br>来源：<a href="https://github.com/malaysiamileyetmynx3953-sketch/yinyue202608/blob/main/20260808-f1j78qvj.md">https://github.com/malaysiamileyetmynx3953-sketch/yinyue202608/blob/main/20260808-f1j78qvj.md</a></p>
+<h3>那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！</h3>
+<p>如何评价阿森纳与阿尔瓦雷斯的转会传闻？<br><br>来源：<a href="https://github.com/mejiastanle/20260718_01/blob/main/20260813-s2ynlliy.md">https://github.com/mejiastanle/20260718_01/blob/main/20260813-s2ynlliy.md</a></p>
+<h3>第四集 | 🐧雷斯：“我变成御姐了？！”🐧</h3>
+<p>五哈和他们的朋友<br><br>来源：<a href="https://github.com/mejiastanle/20260718_03/blob/main/20260808-qhae18we.md">https://github.com/mejiastanle/20260718_03/blob/main/20260808-qhae18we.md</a></p>
+<h3>冷链车严重损毁 司机戴安全帽驾驶</h3>
+<p>吴海涛已任湖北省委统战部部长<br><br>来源：<a href="https://github.com/mejiastanle/20260718_05/blob/main/20260801_vyjrx.md">https://github.com/mejiastanle/20260718_05/blob/main/20260801_vyjrx.md</a></p>
+<h3>开拓者后卫夏普遭受重伤</h3>
+<p>字节办公AI产品「豆包工作」正式发布，将TRAE、扣子并入豆包，如何看待这次调整？整合后会更好用吗？<br><br>来源：<a href="https://github.com/mejiastanle/20260718_07/blob/main/20260725_qmhot.md">https://github.com/mejiastanle/20260718_07/blob/main/20260725_qmhot.md</a></p>
+<h3>全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境</h3>
+<p>第一批拒绝上岸的人出现了<br><br>来源：<a href="https://github.com/mejiastanle/20260718_08/blob/main/20260824-ipyhjjah.md">https://github.com/mejiastanle/20260718_08/blob/main/20260824-ipyhjjah.md</a></p>
+<h3>青春芒果夜浪7团建</h3>
+<p>太极拳思路的以柔克刚，借力打力都貌似很合理，为什么实战起来这个力就克不动，卸不掉，也借不到呢？<br><br>来源：<a href="https://github.com/mejiastanle/20260718_10/blob/main/20260818-x478g7hs.md">https://github.com/mejiastanle/20260718_10/blob/main/20260818-x478g7hs.md</a></p>
+<h3>车辆冲入西湖 一男一女从水中爬出</h3>
+<p>郑钦文时隔14个月大满贯赢球<br><br>来源：<a href="https://github.com/mejiastanle/20260718_12/blob/main/20260812-9tealgpw.md">https://github.com/mejiastanle/20260718_12/blob/main/20260812-9tealgpw.md</a></p>
+<h3>“网约车司机”变偷渡帮凶 71人落网</h3>
+<p>金晨我不是迪丽热巴<br><br>来源：<a href="https://github.com/mejiastanle/20260718_14/blob/main/20260807-7p8rtre8.md">https://github.com/mejiastanle/20260718_14/blob/main/20260807-7p8rtre8.md</a></p>
 <h2>外链</h2>
-<br><br><h3>李雪健已经完全听不见了</h3><br>
-<p>周生如故<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/79878576.sHtML</p><br><br>
-<br><br><h3>TFBOYS的歌多少带点预言</h3><br>
-<p>歌手陈盈洁去世<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/40991122.sHtML</p><br><br>
-<br><br><h3>卫诗雅和老公同框</h3><br>
-<p>小米澎湃OS4柔光玻璃<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/77138610.sHtML</p><br><br>
-<br><br><h3>僵尸把墙砸了个洞后，尸潮反而更简单了【亡者世界】</h3><br>
-<p>白海豚走了 梭子蟹来了<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/91284628.sHtML</p><br><br>
-<br><br><h3>假千金绑定了云原神系统，没想到我绑定了爱上雷神系统，这都什么和什么啊我剪的时候果珍绷住了吗。</h3><br>
-<p>7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/45584330.sHtML</p><br><br>
-<br><br><h3>苹果被曝正测试长鑫存储芯片，将用于在中国市场销售的设备，双方最终达成合作的可能性有多大？</h3><br>
-<p>两弹一星元勋王希季逝世<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/65099783.sHtML</p><br><br>
-<br><br><h3>7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？</h3><br>
-<p>博主称胡锡进AI认知太低<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/49544252.sHtML</p><br><br>
-<br><br><h3>如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？</h3><br>
-<p>任敏漂亮到不敢认<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/53847149.sHtML</p><br><br>
-<br><br><h3>DeepSeek官网文档已更新，v4 pro正式版将于8月13日上线，如何评价？</h3><br>
-<p>男子双腿被绞断 20个月后恢复行走<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/19466102.sHtML</p><br><br>
-<br><br><h3>11岁小孩哥为游客拍照情绪价值拉满</h3><br>
-<p>“白海豚”为何能深入内陆<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/45061937.sHtML</p><br><br>
-<br><br><h3>王艺迪陈熠回应晋级8强</h3><br>
-<p>胡先煦好结实的身材<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/18909614.sHtML</p><br><br>
-<br><br><h3>作家李娟10年没见妈妈了</h3><br>
-<p>全裸坠亡币圈富豪房间内细节曝光<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/81049565.sHtML</p><br><br>
-<br><br><h3>商超自营瓶装水低至4毛一瓶</h3><br>
-<p>从电视剧《重器》来看，为何 80 年代流氓罪会被判死刑？<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/45845785.sHtML</p><br><br>
-<br><br><h3>11岁小孩哥为游客拍照情绪价值拉满</h3><br>
-<p>商超自营瓶装水低至4毛一瓶<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/41313110.sHtML</p><br><br>
-<br><br><h3>独生子女父母陆续步入高龄</h3><br>
-<p>王健林现在怎么样了? 万达什么情况?<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/11638640.sHtML</p><br><br>
-<br><br><h3>张家口民众追忆郭兰英</h3><br>
-<p>梁家辉在《人民日报》撰文<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/50542158.sHtML</p><br><br>
-<br><br><h3>商超自营瓶装水低至4毛一瓶</h3><br>
-<p>“车海战术”失灵了<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/40249275.sHtML</p><br><br>
-<br><br><h3>史上最帅伴郎团已过去10年</h3><br>
-<p>台风大暴雨差点噶进去<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/56737494.sHtML</p><br><br>
-<br><br><h3>如何评价 Grok4.6，有哪些亮点？</h3><br>
-<p>Wenbo或重返BLG首发<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/19172085.sHtML</p><br><br>
-<br><br><h3>普京盯上的跨境索道有何特别</h3><br>
-<p>沐言给姜潮麦迪娜撒花<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/12801739.sHtML</p><br><br>
-<br><br><h3>扫黑风暴</h3><br>
-<p>从电视剧《重器》来看，为何 80 年代流氓罪会被判死刑？<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/62777048.sHtML</p><br><br>
-<br><br><h3>陈奕恒唱玻璃</h3><br>
-<p>越南为何陷入“越输出越难发展”怪圈<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/95140498.sHtML</p><br><br>
-<br><br><h3>威少宣布正式退役</h3><br>
-<p>为了看一场流星雨，我造了1000颗流星 ！<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/34845023.sHtML</p><br><br>
-<br><br><h3>新规：禁止在居民楼开油烟餐饮</h3><br>
-<p>2021江苏卫视跨年演唱会<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/07921564.sHtML</p><br><br>
-<br><br><h3>王艺迪陈熠回应晋级8强</h3><br>
-<p>总书记强调统筹好这几对重要关系<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/04699791.sHtML</p><br><br>
-<br><br><h3>3孩非亲生妻子希望与丈夫一刀两断</h3><br>
-<p>Falcons vs LGD TI国际邀请赛<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/41749103.sHtML</p><br><br>
-<br><br><h3>如何评价2026年8月米哈游《原神》7.0至冬，死之执政若娜瓦戏份？</h3><br>
-<p>威少拒绝国王奇才报价仍选择退役<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/30755067.sHtML</p><br><br>
-<br><br><h3>徐静雨评威少退役</h3><br>
-<p>阚清子产后8个月首次开机<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/79448097.sHtML</p><br><br>
-<br><br><h3>奔跑吧·黄河篇第二季</h3><br>
-<p>高燃混剪威少巅峰时刻<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/49767467.sHtML</p><br><br>
-<br><br><h3>「直到大地变成一颗烂苹果！！」</h3><br>
-<p>人民日报对话《欢迎来龙餐馆》导演<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/98221775.sHtML</p><br><br>
-<br><br><h3>魏如萱称歌手丑八怪是节目组选的</h3><br>
-<p>普京视察俄日争议岛屿<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/99102920.sHtML</p><br><br>
-<br><br><h3>月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？</h3><br>
-<p>乌克兰防空网为何出问题了<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/25041793.sHtML</p><br><br>
-<br><br><h3>为什么有的人天生「精力旺盛」，有的人天生「低精力」？</h3><br>
-<p>女儿想在同学家过夜被爸爸拒绝<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/02383934.sHtML</p><br><br>
-<br><br><h3>为什么很多人都喜欢立flag，但是都没办法付诸实际行动或者坚持下去？</h3><br>
-<p>这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/72233801.sHtML</p><br><br>
-<br><br><h3>如何评价《原神》游戏角色阿罗夏为了保养和改装枪械开销不小？甚至有时用饭钱填上开销的窟窿？</h3><br>
-<p>男子上班脑出血送医后死亡未认定工伤<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/22562514.sHtML</p><br><br>
-<br><br><h3>爱吃西红柿的人真的“赚”了</h3><br>
-<p>‘游 戏 玩 家 不 爽 行 为’<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/45658080.sHtML</p><br><br>
-<br><br><h3>飞两万公里去南美洲 以为到了四川</h3><br>
-<p>哪些话一出现，你就知道是 AI 写的？<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/03984902.sHtML</p><br><br>
-<br><br><h3>千与千寻</h3><br>
-<p>沈腾感谢榜一大姐马丽<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/88207257.sHtML</p><br><br>
-<br><br><h3>女子伪造2万元存单骗家人被判6个月</h3><br>
-<p>对话学术风暴后的耿同学<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/95343759.sHtML</p><br><br>
-<br><br><h3>🐧当你打游戏时父母进你房间蹭空调🐧</h3><br>
-<p>网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/91377817.sHtML</p><br><br>
-<br><br><h3>长期血糖失控可能会经历什么</h3><br>
-<p>新版江南style它来了！#川剧摇<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/53284009.sHtML</p><br><br>
-<br><br><h3>母亲乱投资欠下500万 女儿卖房扛债</h3><br>
-<p>作家李娟10年没见妈妈了<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/56119195.sHtML</p><br><br>
-<br><br><h3>马頔李纯意大利旅行</h3><br>
-<p>如何评价2026年8月12日上线的《原神》7.0版本「无神怜爱的雪国」？<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/32421963.sHtML</p><br><br>
-<br><br><h3>2021江苏卫视跨年演唱会</h3><br>
-<p>“白海豚”为何能深入内陆<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/23696013.sHtML</p><br><br>
-<br><br><h3>如何辨别自己是真正的「情绪稳定」，还是在「压抑情绪」？</h3><br>
-<p>网传再见朋友拟邀马天宇张萌<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/16419780.sHtML</p><br><br>
-<br><br><h3>张雪机车获红杉中国独家新一轮投资</h3><br>
-<p>偷拍设备卖家称上传偷拍视频可返现<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/22824068.sHtML</p><br><br>
-<br><br><h3>《阿嬷》导演看《欢迎来龙餐馆》落泪</h3><br>
-<p>为见24岁儿子最后一面母亲报警赶高铁<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/57491428.sHtML</p><br><br>
-<br><br><h3>8万级SUV已经卷到这种程度了吗</h3><br>
-<p>银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/18366310.sHtML</p><br><br>
-<br><br><h3>【原神7.0一条龙】全宝箱（更新中）/冰神瞳/任务/影生翼滴/成就//观景点/玉帛/探索度一条龙,至冬/古兽冰原/永凝冻土/霜殛寒峰/白桦雪葬地/焰羽谷</h3><br>
-<p>徐静雨评威少退役<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/89799247.sHtML</p><br><br>
-<br><br><h3>年赚一个亿的店，说关就关，于东来：我宁可不要这钱，也不惯着你</h3><br>
-<p>卫诗雅和老公同框<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/35433003.sHtML</p><br><br>
-<br><br><h3>狗仔硬刚周杰伦MV女孩</h3><br>
-<p>天然气公司要求壁挂炉满8年必须换<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/50162323.sHtML</p><br><br>
-<br><br><h3>沈腾感谢榜一大姐马丽</h3><br>
-<p>偷拍设备卖家称上传偷拍视频可返现<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/01508076.sHtML</p><br><br>
-<br><br><h3>姚安娜真名曝光</h3><br>
-<p>为什么《影之刃：零》的11分钟宣传片中，杀手选择和魂在车上决斗，而不杀马？<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/78451895.sHtML</p><br><br>
-<br><br><h3>赵一鸣零食被困在毛利里了吗</h3><br>
-<p>货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/10683011.sHtML</p><br><br>
-<br><br><h3>女儿被男友环抱跳河死亡母亲痛哭</h3><br>
-<p>狄龙获终身成就荣誉<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/98481974.sHtML</p><br><br>
-<br><br><h3>网友偶遇章子怡带娃游泳</h3><br>
-<p>黑龙江二龙湖上演鱼跃龙门奇观<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/37638788.sHtML</p><br><br>
-<br><br><h3>3万全款买40平房是机会还是坑</h3><br>
-<p>《癫佬外传》第一季合集<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/19847889.sHtML</p><br><br>
-<br><br><h3>霍仙姑就是隔世老祖</h3><br>
-<p>莱巴金娜逆转晋级多伦多决赛<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/09809876.sHtML</p><br><br>
-<br><br><h3>曝曾辉送考人不是韩雨彤了</h3><br>
-<p>狗仔硬刚周杰伦MV女孩<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/01691946.sHtML</p><br><br>
-<br><br><h3>西班牙日全食</h3><br>
-<p>李登科自曝曾被潜规则<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/91702366.sHtML</p><br><br>
-<br><br><h3>中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？</h3><br>
-<p>这视频等了五年！<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/58149907.sHtML</p><br><br>
-<br><br><h3>弟弟曝受长辈安排默许哥哥冒名入学</h3><br>
-<p>老蒋对话耿同学<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/02809085.sHtML</p><br><br>
-<br><br><h3>李雪健已完全听不见</h3><br>
-<p>牛散“鑫多多”成为美诺华第四大股东<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/93526971.sHtML</p><br><br>
-<br><br><h3>全国家乡减脂美食地图</h3><br>
-<p>2021江苏卫视跨年演唱会<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/96007271.sHtML</p><br><br>
-<br><br><h3>卢伟冰官宣小米澎湃OS4</h3><br>
-<p>天然气公司要求热水器满8年必须换<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/76730799.sHtML</p><br><br>
-<br><br><h3>于东来多次硬刚房东坐地起价</h3><br>
-<p>这视频等了五年！<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/41756941.sHtML</p><br><br>
-<br><br><h3>网传英伟达欲投资中际旭创新易盛</h3><br>
-<p>船新版本新宝岛！这个联动怎么说？<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/29378768.sHtML</p><br><br>
-<br><br><h3>iPhone全系或将涨价100美元</h3><br>
-<p>河流地貌<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/49498667.sHtML</p><br><br>
-<br><br><h3>这视频等了五年！</h3><br>
-<p>一生一世<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/50886783.sHtML</p><br><br>
-<br><br><h3>胡先煦好结实的身材</h3><br>
-<p>新版江南style它来了！#川剧摇<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/23381896.sHtML</p><br><br>
-<br><br><h3>皇马友谊赛获得巨型奖杯</h3><br>
-<p>DeepSeek V4 Pro 正式版发布，如何评价该模型？<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/41186295.sHtML</p><br><br>
-<br><br><h3>日本“草莓仙人”挑衅中国人</h3><br>
-<p>越南为何陷入“越输出越难发展”怪圈<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/88169553.sHtML</p><br><br>
-<br><br><h3>中美航母作战理念有哪些区别</h3><br>
-<p>狗仔硬刚周杰伦MV女孩<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/04992954.sHtML</p><br><br>
-<br><br><h3>美国老师崩溃痛哭：高中生不会读写</h3><br>
-<p>网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/15134363.sHtML</p><br><br>
-<br><br><h3>女儿被男友环抱跳河死亡母亲痛哭</h3><br>
-<p>男子打卡五代国门：我们强大起来了<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/50757797.sHtML</p><br><br>
-<br><br><h3>倒在姐姐的怀里感觉很幸福</h3><br>
-<p>[审美积累]“黑暗时代所定义的中世纪电影美学”<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/42921986.sHtML</p><br><br>
-<br><br><h3>“白海豚”为何能深入内陆</h3><br>
-<p>北京朝阳水务局用科技手段测水位流量<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/83910328.sHtML</p><br><br>
-<br><br><h3>刘晓庆 女帝和她的将相</h3><br>
-<p>越南为何陷入“越输出越难发展”怪圈<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/96300314.sHtML</p><br><br>
-<br><br><h3>全球顶级“长钱”为AI硬件下半场投票</h3><br>
-<p>人民日报对话《欢迎来龙餐馆》导演<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/60569927.sHtML</p><br><br>
-<br><br><h3>阚清子手机壳是胖子住嘴</h3><br>
-<p>中国算电协同“航母”来了<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/78150760.sHtML</p><br><br>
-<br><br><h3>毒液2</h3><br>
-<p>美债规模增速为何越来越快<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/28920463.sHtML</p><br><br>
-<br><br><h3>普京首次登上俄日争议岛屿</h3><br>
-<p>医保局公布住院人次排名第一的疾病<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/49439146.sHtML</p><br><br>
-<br><br><h3>邵永灵：乌克兰持久战后患无穷</h3><br>
-<p>邵阳“炒粉哥”驾三轮奔赴拉萨<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/32546951.sHtML</p><br><br>
-<br><br><h3>威少宣布退役</h3><br>
-<p>神行者8豪华大六座新旗舰<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/86223303.sHtML</p><br><br>
-<br><br><h3>6年，你们童年的愿望，我帮你们实现了！</h3><br>
-<p>阚清子产后8个月首次开机<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/20703613.sHtML</p><br><br>
-<br><br><h3>高中牲自制蛛丝发射器（一）</h3><br>
-<p>代写论文都能直播卖了，学术圈到底怎么了？<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/71216616.sHtML</p><br><br>
-<br><br><h3>燃气设备满8年必须换否则就要被停气</h3><br>
-<p>女子花8万做试管被推进简易房手术<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/06514077.sHtML</p><br><br>
-<br><br><h3>赛博华佗！病毒吧吧主无偿帮人</h3><br>
-<p>网友偶遇章子怡带娃游泳<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/46084436.sHtML</p><br><br>
-<br><br><h3>沉睡花园</h3><br>
-<p>当年为加入 WTO 做出的让步，今天看来到底有多值？<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/81793700.sHtML</p><br><br>
-<br><br><h3>代写论文都能直播卖了，学术圈到底怎么了？</h3><br>
-<p>清华美院教授将红军画成眯眯眼<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/13415115.sHtML</p><br><br>
-<br><br><h3>虞书欣张昊玥同框照</h3><br>
-<p>威少退役 哈登晒合照并配心碎表情<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/38172788.sHtML</p><br><br>
-<br><br><h3>全球最大单体智算中心投产</h3><br>
-<p>乌克兰防空网为何出问题了<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/15744753.sHtML</p><br><br>
-<br><br><h3>肖战李沁五搭只有狼殿下有吻戏</h3><br>
-<p>胖东来不怕搬家<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/70696312.sHtML</p><br><br>
-<br><br><h3>2021江苏卫视跨年演唱会</h3><br>
-<p>我国生态环境质量持续向好<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/00139161.sHtML</p><br><br>
-<br><br><h3>牛散“鑫多多”成为美诺华第四大股东</h3><br>
-<p>邵阳“炒粉哥”驾三轮奔赴拉萨<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/77316057.sHtML</p><br><br>
-<br><br><h3>作家李娟10年没见妈妈了</h3><br>
-<p>当年为加入 WTO 做出的让步，今天看来到底有多值？<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/49753891.sHtML</p><br><br>
-<br><br><h3>我国生态治理迈向新阶段</h3><br>
-<p>浙江一公司收到美国2.62亿元关税退税<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/37469219.sHtML</p><br><br>
-<br><br><h3>湖北咸宁民警王丽在职病故 享年47岁</h3><br>
-<p>云南大象睡了一地<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/17946090.sHtML</p><br><br>
-<br><br><h3>杭州最美厕所走红</h3><br>
-<p>90年前的废弃油罐成长沙流量密码<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/74007235.sHtML</p><br><br>
-<br><br><h3>迈阿密国际2比3莱昂</h3><br>
-<p>2026ivl夏季赛<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/84110266.sHtML</p><br><br>
-<br><br><h3>上半年中国都在买什么</h3><br>
-<p>肖战李沁五搭只有狼殿下有吻戏<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/15454662.sHtML</p><br><br>
-<br><br><h3>男子飞两万公里到南美洲以为到四川</h3><br>
-<p>因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/22929190.sHtML</p><br><br>
-<br><br><h3>于东来多次硬刚房东坐地起价</h3><br>
-<p>热烈欢迎方芳老师👏 来看驰骋台湾大陆影视综近60年的芳姐平时都会吃什么玩什么买什么呢？（这期听到好多前辈的名字哦<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/38717333.sHtML</p><br><br>
-<br><br><h3>男子出轨销售买千万保险还转账350万</h3><br>
-<p>升学宴35桌无人上桌<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/92541667.sHtML</p><br><br>
-<br><br><h3>我国生态治理迈向新阶段</h3><br>
-<p>为什么蚊子没有进化成像猫猫那样特别可爱的样子，让人不忍心拍死？<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/51324648.sHtML</p><br><br>
-<br><br><h3>为见24岁儿子最后一面母亲报警赶高铁</h3><br>
-<p>为什么很多人都喜欢立flag，但是都没办法付诸实际行动或者坚持下去？<br><br> | 报道来源：http://www.baike.kangkuihe.cn/Article/details/76354533.sHtML</p><br><br>
-<br><br><h3>中国制造业这二十年发生了什么</h3><br>
-<p>小伙AR-15市区屠杀，5位市民拔枪反抗8杀枪手，全员战神！【爱达荷枪击案详解】<br><br> | 媒体来源：http://www.baike.kangkuihe.cn/Article/details/07798134.sHtML</p><br><br>
-<br><br><h3>3孩非亲生当事人自述前妻生活疑点</h3><br>
-<p>澳议员闹笑话将越南国旗当中国的<br><br> | 资料出处：http://www.baike.kangkuihe.cn/Article/details/67716782.sHtML</p><br><br>
-<br><br><h3>《起屁了》红石音乐</h3><br>
-<p>全程随意发挥挑战，感到尴尬奖励1000<br><br> | 信息出处：http://www.baike.kangkuihe.cn/Article/details/85157395.sHtML</p><br><br>
-<br><br><h3>蜘蛛侠:平行宇宙</h3><br>
-<p>当年为加入 WTO 做出的让步，今天看来到底有多值？<br><br> | 参考资料：http://www.baike.kangkuihe.cn/Article/details/96380100.sHtML</p><br><br>
-<br><br><h3>《顽童戏老叟》</h3><br>
-<p>3孩非亲生当事人自述前妻生活疑点<br><br> | 综合来源：http://www.baike.kangkuihe.cn/Article/details/91533203.sHtML</p><br><br>
-<br><br><h3>大哥坐礁石上被浪打进礁石缝</h3><br>
-<p>新版江南style它来了！#川剧摇<br><br> | 素材来源：http://www.baike.kangkuihe.cn/Article/details/24268429.sHtML</p><br><br>
+<br><br><h3>新加坡重奖生育 每孩补贴5.5万美元</h3><br>
+<p>《新数码宝贝 · 全面战争》【8分钟管饱】<br><br> | 报道来源：<a>http://www.bbs.hainansili.cn/Article/details/00398474.sHtML</a></p><br><br>
+<br><br><h3>林子濠是林依轮儿子</h3><br>
+<p>巴西38岁女子扮12岁女童骗收养15年<br><br> | 媒体来源：<a>http://www.blog.mingjia56.cn/Article/details/96366760.sHtML</a></p><br><br>
+<br><br><h3>在中国探索智能终端“进化论”</h3><br>
+<p>ai也美不过陈都灵<br><br> | 资料出处：<a>http://www.hhzjyc120.com/?x/10032575.sHtML</a></p><br><br>
+<br><br><h3>电视剧生命树</h3><br>
+<p>孟子义拉不开便利店门<br><br> | 信息出处：<a>http://bbs.blog.tanshengyueqi.cn/Article/details/09535749.sHtML</a></p><br><br>
+<br><br><h3>开学时的我belike</h3><br>
+<p>字节办公AI产品「豆包工作」正式发布，将TRAE、扣子并入豆包，如何看待这次调整？整合后会更好用吗？<br><br> | 参考资料：<a>http://bbs.blog.hnsili.cn/Article/details/00735220.sHtML</a></p><br><br>
+<br><br><h3>泰国南部一夜51起暴力事件</h3><br>
+<p>诺兰为什么要弱化《奥德赛》原著中的幽默、情色与荒诞，拍得如此严肃？<br><br> | 综合来源：<a>http://www.bbs.acprint.cn/?x/35713866.sHtML</a></p><br><br>
+<br><br><h3>滴滴给专车配可乐 乘客司机褒贬不一</h3><br>
+<p>官方确认帮扶老人遭索赔店主不担责<br><br> | 素材来源：<a>http://www.zjkslz.com/?x/92265685.sHtML</a></p><br><br>
+<br><br><h3>第四集 | 🐧雷斯：“我变成御姐了？！”🐧</h3><br>
+<p>我花600万买法拉利打理想脸，结果……<br><br> | 相关来源：<a>http://www.wjmhyey.net/?x/75112372.sHtML</a></p><br><br>
+<br><br><h3>汽车出口狂飙 又一大省杀入战局</h3><br>
+<p>如何看待印度空军与多国进行演习<br><br> | 来源：<a>http://www.sun-kids.net/?x/01709406.sHtML</a></p><br><br>
+<br><br><h3>多地官宣今年秋假时间</h3><br>
+<p>一双手，一夜晚，____<br><br> | 参考来源：<a>http://bbs.blog.tanshengyueqi.cn/Article/details/37253118.sHtML</a></p><br><br>
+<br><br><h3>车辆冲入西湖 一男一女从水中爬出</h3><br>
+<p>成都蛋烘糕奶奶被镜头霸凌<br><br> | 信息来源：<a>http://www.blog.cuteparty.cn/Article/details/55284172.sHtML</a></p><br><br>
 <br><br><h3>青春环游记第三季</h3><br>
-<p>美国老师崩溃痛哭：高中生不会读写<br><br> | 相关来源：http://www.baike.kangkuihe.cn/Article/details/29703259.sHtML</p><br><br>
-<br><br><h3>邵永灵：乌克兰持久战后患无穷</h3><br>
-<p>威少宣布退役<br><br> | 来源：http://www.baike.kangkuihe.cn/Article/details/70152201.sHtML</p><br><br>
-<br><br><h3>日本“失去的三十年”有些行业却暴涨</h3><br>
-<p>百米赛道高难度闯关、只有上过的才知道含金量有多高！<br><br> | 参考来源：http://www.baike.kangkuihe.cn/Article/details/40885376.sHtML</p><br><br>
-<br><br><h3>大城市养老如何破题</h3><br>
-<p>赵海燕闫光明喊你PK唱功 AI来点评<br><br> | 信息来源：http://www.baike.kangkuihe.cn/Article/details/93094842.sHtML</p><br><br>
-<br><br><h3>为什么蚊子没有进化成像猫猫那样特别可爱的样子，让人不忍心拍死？</h3><br>
-<p>霍仙姑就是隔世老祖<br><br> | 内容来源：http://www.baike.kangkuihe.cn/Article/details/41569468.sHtML</p><br><br>
-<br><br><h3>为什么沈腾作为中国影史票房第一人，却金鸡、百花、华表一个奖都没拿？</h3><br>
-<p>河流地貌<br><br> | 数据来源：http://www.baike.kangkuihe.cn/Article/details/81992969.sHtML</p><br><br>
-<br><br><h3>日本“失去的三十年”有些行业却暴涨</h3><br>
-<p>继金像奖后，卫诗雅凭借《破·地狱》获百花奖影后，如何评价她在其中的演绎？<br><br> | 消息来源：http://www.baike.kangkuihe.cn/Article/details/22717778.sHtML</p><br><br>
-<br><br><h3>男子看病8天花8万治疗按分钟收费</h3><br>
-<p>威少宣布退役<br><br> | 新闻来源：http://www.baike.kangkuihe.cn/Article/details/83849263.sHtML</p><br><br>
+<p>吴海涛已任湖北省委统战部部长<br><br> | 内容来源：<a>http://www.bbs.millnair.com.cn/?x/78805796.sHtML</a></p><br><br>
+<br><br><h3>10万级的纯视觉智驾勇闯华强北？</h3><br>
+<p>宁波交通事故<br><br> | 数据来源：<a>http://www.ashxhgy.com/?x/18822565.sHtML</a></p><br><br>
+<br><br><h3>我又办比赛了（3）！</h3><br>
+<p>宏胜集团人力资源部部长寇静被免职<br><br> | 消息来源：<a>http://m.bbs.tanshengyueqi.cn/Article/details/16945876.sHtML</a></p><br><br>
+<br><br><h3>脑出血急诊去医院为什么几个小时不开始手术，最后我妈去世了，医院有没有责任？</h3><br>
+<p>美人鱼<br><br> | 新闻来源：<a>http://www.bbs.hengruntech.cn/?x/79076988.sHtML</a></p><br><br>
+<br><br><h3>火车票无座票是否应打折或者明示？</h3><br>
+<p>心动9爆出隐藏清香片段<br><br> | 报道来源：<a>http://bbs.blog.millnair.com.cn/?x/29483213.sHtML</a></p><br><br>
+<br><br><h3>原来不是挂面不好吃</h3><br>
+<p>花了几万块办健身卡请私教，最后还是没瘦下来，是我的问题还是健身房的问题？<br><br> | 媒体来源：<a>http://www.bbs.ttp8.cn/?x/62043142.sHtML</a></p><br><br>
+<br><br><h3>急先锋</h3><br>
+<p>大学生1.9万买电脑遇涨价2月没发货<br><br> | 资料出处：<a>http://www.blog.cuteparty.cn/Article/details/41910069.sHtML</a></p><br><br>
+<br><br><h3>感觉艾米从12岁开始就长开了</h3><br>
+<p>石达开为什么负气出走？真的带走了几十万精兵？<br><br> | 信息出处：<a>http://www.blog.cuteparty.cn/Article/details/92492227.sHtML</a></p><br><br>
+<br><br><h3>张凌赫母校校长晒To签好骄傲</h3><br>
+<p>披荆斩棘的哥哥<br><br> | 参考资料：<a>http://www.blog.mensplus.com.cn/?x/01224026.sHtML</a></p><br><br>
+<br><br><h3>菲律宾一轮船海上沉没全过程曝光</h3><br>
+<p>威虫快跑！！！<br><br> | 综合来源：<a>http://m.bbs.hainansili.cn/Article/details/61029971.sHtML</a></p><br><br>
+<br><br><h3>如何评价《欢迎来龙餐馆》里的托尼王这个角色？</h3><br>
+<p>流金岁月<br><br> | 素材来源：<a>http://m.bbs.hainansili.cn/Article/details/14548366.sHtML</a></p><br><br>
+<br><br><h3>自动驾驶状态违法由车企担责</h3><br>
+<p>AI科普护理工作的意义所在<br><br> | 相关来源：<a>http://www.zjkslz.com/?x/11966304.sHtML</a></p><br><br>
+<br><br><h3>自动驾驶状态违法由车企担责</h3><br>
+<p>火车票无座票是否应打折或者明示？<br><br> | 来源：<a>http://www.blog.mensplus.com.cn/?x/88271254.sHtML</a></p><br><br>
+<br><br><h3>伊朗货币里亚尔汇率跌至历史新低</h3><br>
+<p>LPL季后赛最新赛程<br><br> | 参考来源：<a>http://www.blog.mensplus.com.cn/?x/17929250.sHtML</a></p><br><br>
+<br><br><h3>F1荷兰大奖赛最快换胎</h3><br>
+<p>中美1.5轨对话在北京举行<br><br> | 信息来源：<a>http://www.blog.cuteparty.cn/Article/details/74775396.sHtML</a></p><br><br>
+<br><br><h3>曼城将1.4亿签下恩佐</h3><br>
+<p>以色列黑手党头目遭枪杀现场曝光<br><br> | 内容来源：<a>http://bbs.blog.xhw-tech.cn/?x/37077851.sHtML</a></p><br><br>
+<br><br><h3>伊朗货币里亚尔汇率跌至历史新低</h3><br>
+<p>花599元买洞洞鞋 穿1个月鞋底磨平<br><br> | 数据来源：<a>http://www.blog.millnair.com.cn/?x/14484469.sHtML</a></p><br><br>
+<br><br><h3>人形机器人百米障碍赛决赛</h3><br>
+<p>花599元买洞洞鞋 穿1个月鞋底磨平<br><br> | 消息来源：<a>http://www.bbs.xhw-tech.cn/?x/92253668.sHtML</a></p><br><br>
+<br><br><h3>美前大使称以缺乏长期生存策略</h3><br>
+<p>网传1.9万获返还 遭索赔家属称不知情<br><br> | 新闻来源：<a>http://www.hhzjyc120.com/?x/17883140.sHtML</a></p><br><br>
+<br><br><h3>发给你不回消息的朋友来看</h3><br>
+<p>追觅业务发展说明<br><br> | 报道来源：<a>http://www.ykbayy.com/?x/54134906.sHtML</a></p><br><br>
+<br><br><h3>多款APP被通报</h3><br>
+<p>开拓者后卫夏普遭受重伤<br><br> | 媒体来源：<a>http://www.blog.ttp8.cn/?x/36606695.sHtML</a></p><br><br>
+<br><br><h3>杨幂当年同款过膝靴卖爆</h3><br>
+<p>覃伟中辞去深圳市市长职务<br><br> | 资料出处：<a>http://bbs.blog.tanshengyueqi.cn/Article/details/12524206.sHtML</a></p><br><br>
+<br><br><h3>氧化菊删除权志龙签名酒视频</h3><br>
+<p>中美俄反无人机神器有何不同<br><br> | 信息出处：<a>http://www.hhzjyc120.com/?x/07153779.sHtML</a></p><br><br>
+<br><br><h3>大学生1.9万买电脑遇涨价2月没发货</h3><br>
+<p>华为新品发布会定档9月7日<br><br> | 参考资料：<a>http://www.blog.marunon.cn/Article/details/12872698.sHtML</a></p><br><br>
+<br><br><h3>金鹰奖提名名单</h3><br>
+<p>新京报怒批、导演狂喷！可嘲讽牛来的导演自己作品仅4.1分？！【网络狠人113】<br><br> | 综合来源：<a>http://bbs.blog.hnsili.cn/Article/details/35675943.sHtML</a></p><br><br>
+<br><br><h3>这盘棋已经赢不了，只能把对面打死了！</h3><br>
+<p>中美俄反无人机神器有何不同<br><br> | 素材来源：<a>http://m.bbs.hnsili.cn/Article/details/89359916.sHtML</a></p><br><br>
+<br><br><h3>男子甘孜摩旅被牦牛顶飞</h3><br>
+<p>双世宠妃男女主现状<br><br> | 相关来源：<a>http://bbs.blog.acprint.cn/?x/12630381.sHtML</a></p><br><br>
+<br><br><h3>为什么童星的发展都很一般？戏路都很窄？</h3><br>
+<p>成本近30元 飞机餐为何依然难吃<br><br> | 来源：<a>http://www.blog.xhw-tech.cn/?x/97763044.sHtML</a></p><br><br>
+<br><br><h3>全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境</h3><br>
+<p>甘肃平凉公安打掉2个恶势力犯罪组织<br><br> | 参考来源：<a>http://m.bbs.hnsili.cn/Article/details/68852416.sHtML</a></p><br><br>
+<br><br><h3>鞠婧祎腿好长</h3><br>
+<p>以色列黑手党头目遭枪杀现场曝光<br><br> | 信息来源：<a>http://www.blog.qjphr.cn/?x/75324112.sHtML</a></p><br><br>
+<br><br><h3>女子买黄金股1周获利近20%</h3><br>
+<p>金所泫宋江官宣二搭<br><br> | 内容来源：<a>http://www.blog.3cn.com.cn/Article/details/56220356.sHtML</a></p><br><br>
+<br><br><h3>沉睡花园</h3><br>
+<p>两人购买三座拒让座，律师称合法购票即享排他使用权，对此你怎么看？<br><br> | 数据来源：<a>http://bbs.blog.millnair.com.cn/?x/84457596.sHtML</a></p><br><br>
+<br><br><h3>26年！他们种下的树苗已成参天大树</h3><br>
+<p>Flandre感谢BLG队友<br><br> | 消息来源：<a>http://www.blog.marunon.cn/Article/details/12790483.sHtML</a></p><br><br>
+<br><br><h3>太极拳思路的以柔克刚，借力打力都貌似很合理，为什么实战起来这个力就克不动，卸不掉，也借不到呢？</h3><br>
+<p>钟丽缇报复张伦硕直播助眠<br><br> | 新闻来源：<a>http://m.bbs.marunon.cn/Article/details/27256356.sHtML</a></p><br><br>
+<br><br><h3>孙浩评论了刘浩存</h3><br>
+<p>中国认真“收废品”背后<br><br> | 报道来源：<a>http://www.bbs.mingjia56.cn/Article/details/64905677.sHtML</a></p><br><br>
+<br><br><h3>樊振东一饭封神2</h3><br>
+<p>男子别停出租车被司机下车拔走钥匙<br><br> | 媒体来源：<a>http://www.bbs.acprint.cn/?x/72284571.sHtML</a></p><br><br>
+<br><br><h3>男生为爱三次高考遗憾分手</h3><br>
+<p>斛珠夫人<br><br> | 资料出处：<a>http://m.bbs.hainansili.cn/Article/details/57891510.sHtML</a></p><br><br>
+<br><br><h3>扶老人被索赔店主支付的1.9万获返还</h3><br>
+<p>我找了3000人进行高考生存挑战！<br><br> | 信息出处：<a>http://www.weijiaxcx.com/?x/52109004.sHtML</a></p><br><br>
+<br><br><h3>开学时的我belike</h3><br>
+<p>国安部：靖国神社就是“战犯神社”<br><br> | 参考资料：<a>http://bbs.blog.hnsili.cn/Article/details/92340093.sHtML</a></p><br><br>
+<br><br><h3>车辆冲入西湖 一男一女从水中爬出</h3><br>
+<p>洪洞大槐树景区中元节祭祖大典将举行<br><br> | 综合来源：<a>http://bbs.blog.hnsili.cn/Article/details/53693228.sHtML</a></p><br><br>
+<br><br><h3>多位专家被罚 栽在同一件“小事”上</h3><br>
+<p>“当全世界都知道你10天后成为超人（31）”<br><br> | 素材来源：<a>http://www.blog.tanshengyueqi.cn/Article/details/20601393.sHtML</a></p><br><br>
+<br><br><h3>现在就出发</h3><br>
+<p>肖战宁艺卓金硕珍Gucci新地广<br><br> | 相关来源：<a>http://www.blog.3cn.com.cn/Article/details/50744132.sHtML</a></p><br><br>
+<br><br><h3>新加坡总理鼓励华人多讲华语</h3><br>
+<p>韩股 深V反转<br><br> | 来源：<a>http://www.bbs.tanshengyueqi.cn/Article/details/46116259.sHtML</a></p><br><br>
+<br><br><h3>警方回应女子称被摸胸猥亵20多次</h3><br>
+<p>宁波交通事故致1死4伤：司机突发疾病<br><br> | 参考来源：<a>http://www.hrbngzx.com/?x/94654092.sHtML</a></p><br><br>
+<br><br><h3>于正说周柯宇母语不是中文</h3><br>
+<p>机器人跑步 一个章若楠一个宋亚轩<br><br> | 信息来源：<a>http://www.bbs.hnsili.cn/Article/details/40337859.sHtML</a></p><br><br>
+<br><br><h3>中国成功发射一箭七星</h3><br>
+<p>保护食品安全不能变成打地鼠游戏<br><br> | 内容来源：<a>http://www.bbs.qjphr.cn/?x/54562937.sHtML</a></p><br><br>
+<br><br><h3>不间断开24小时拉力是什么感觉？</h3><br>
+<p>因上厕所不让路大打出手6人被拘<br><br> | 数据来源：<a>http://bbs.blog.tanshengyueqi.cn/Article/details/37336410.sHtML</a></p><br><br>
+<br><br><h3>皮质醇水平越低越好？真相来了</h3><br>
+<p>搞笑疯人院：满级病友竟是大佬！大家都有病的时候，楚闻野张口闭口就喊桑九舅舅，桑九也觉得楚闻野是个好孩子，就是脑子不太好。<br><br> | 消息来源：<a>http://www.blog.acprint.cn/?x/26408789.sHtML</a></p><br><br>
+<br><br><h3>肖战宁艺卓金硕珍Gucci新地广</h3><br>
+<p>抽象新闻：8月人类迷惑行为大赏（上）<br><br> | 新闻来源：<a>http://bbs.blog.hnsili.cn/Article/details/89957715.sHtML</a></p><br><br>
+<br><br><h3>《贺子珍》</h3><br>
+<p>扫黑风暴<br><br> | 报道来源：<a>http://www.sdrsa.com/?x/77353191.sHtML</a></p><br><br>
+<br><br><h3>多款APP被通报</h3><br>
+<p>网文中主角主动帮别人算是一个大毒点吗？<br><br> | 媒体来源：<a>http://www.ashxhgy.com/?x/93895710.sHtML</a></p><br><br>
+<br><br><h3>美前大使称以缺乏长期生存策略</h3><br>
+<p>李昀锐为去世粉丝预留座位<br><br> | 资料出处：<a>http://www.bbs.mingjia56.cn/Article/details/89899149.sHtML</a></p><br><br>
+<br><br><h3>女子买到长蘑菇柿子：已寄给研究所</h3><br>
+<p>卓荣泰把救灾变政治攻防遭批<br><br> | 信息出处：<a>http://m.bbs.tanshengyueqi.cn/Article/details/11279698.sHtML</a></p><br><br>
+<br><br><h3>历史上有哪些君臣关系堪称佳话？</h3><br>
+<p>德媒：更激进的以色列使冲突风险上升<br><br> | 参考资料：<a>http://www.blog.ttp8.cn/?x/42699812.sHtML</a></p><br><br>
+<br><br><h3>明星大侦探第一季</h3><br>
+<p>外媒：今年或是泽连斯基最艰难一年<br><br> | 综合来源：<a>http://m.bbs.hnsili.cn/Article/details/73652155.sHtML</a></p><br><br>
+<br><br><h3>司机报警有黄气球直冲机场民警看懵</h3><br>
+<p>美人鱼<br><br> | 素材来源：<a>http://www.scx2z.com/?x/30013048.sHtML</a></p><br><br>
+<br><br><h3>明星大侦探第一季</h3><br>
+<p>石家庄未来发展怎么样?<br><br> | 相关来源：<a>http://bbs.blog.mingjia56.cn/Article/details/14653558.sHtML</a></p><br><br>
+<br><br><h3>donk称想为绿龙效力一辈子</h3><br>
+<p>光与夜之恋<br><br> | 来源：<a>http://www.blog.mingjia56.cn/Article/details/83097321.sHtML</a></p><br><br>
+<br><br><h3>想跟领导提升职的事情，又不敢当面说，发了微信没收到回复，还有必要再当面说么？</h3><br>
+<p>火车票无座票是否应打折或者明示？<br><br> | 参考来源：<a>http://www.zjkslz.com/?x/52666587.sHtML</a></p><br><br>
+<br><br><h3>蒋奇明谈马俊生广西口音的由来</h3><br>
+<p>吴海涛已任湖北省委统战部部长<br><br> | 信息来源：<a>http://bbs.blog.mensplus.com.cn/?x/50710443.sHtML</a></p><br><br>
+<br><br><h3>心动9爆出隐藏清香片段</h3><br>
+<p>直击世界人形机器人运动会<br><br> | 内容来源：<a>http://m.bbs.mingjia56.cn/Article/details/17223340.sHtML</a></p><br><br>
+<br><br><h3>天道</h3><br>
+<p>僵 尸 进 村<br><br> | 数据来源：<a>http://www.chengbeiyoueryuan.com/?x/96774950.sHtML</a></p><br><br>
+<br><br><h3>中美俄反无人机神器有何不同</h3><br>
+<p>美军研发“迷你导弹”有何目的<br><br> | 消息来源：<a>http://www.gxhezhong.net/?x/22529167.sHtML</a></p><br><br>
+<br><br><h3>严肃观看儿子的历史记录</h3><br>
+<p>建议查查张韶涵造型师的灵感库<br><br> | 新闻来源：<a>http://www.wjmhyey.net/?x/35182142.sHtML</a></p><br><br>
+<br><br><h3>成本近30元 飞机餐为何依然难吃</h3><br>
+<p>韩剧史上最好的男主交替场面<br><br> | 报道来源：<a>http://www.bbs.millnair.com.cn/?x/85229569.sHtML</a></p><br><br>
+<br><br><h3>日本前外交官亲赴新疆打脸日媒</h3><br>
+<p>中美1.5轨对话今天在北京举行<br><br> | 媒体来源：<a>http://www.bbs.hengruntech.cn/?x/44187379.sHtML</a></p><br><br>
+<br><br><h3>为什么生活中要注意控糖？</h3><br>
+<p>汽车出口狂飙 又一大省杀入战局<br><br> | 资料出处：<a>http://www.blog.hengruntech.cn/?x/86959703.sHtML</a></p><br><br>
+<br><br><h3>特朗普接连晒三张与金正恩合照</h3><br>
+<p>为民造福是最大政绩<br><br> | 信息出处：<a>http://m.bbs.tanshengyueqi.cn/Article/details/44340256.sHtML</a></p><br><br>
+<br><br><h3>追觅 业务调整</h3><br>
+<p>冷链车严重损毁 司机戴安全帽驾驶<br><br> | 参考资料：<a>http://www.blog.3cn.com.cn/Article/details/24415607.sHtML</a></p><br><br>
+<br><br><h3>勇敢的心第二部</h3><br>
+<p>新加坡总理鼓励华人多讲华语<br><br> | 综合来源：<a>http://bbs.blog.xisuoji.cn/?x/36151457.sHtML</a></p><br><br>
+<br><br><h3>&quot;复活吧！我的（ ）&quot;</h3><br>
+<p>那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！<br><br> | 素材来源：<a>http://www.wjmhyey.net/?x/59377946.sHtML</a></p><br><br>
+<br><br><h3>学生发型不合格就不能进校上课，这样执行校规合理吗？中学生为什么非得剪短发？</h3><br>
+<p>没人会记得神作之下的第二名，除非那一年都是神仙！<br><br> | 相关来源：<a>http://m.bbs.hainansili.cn/Article/details/98563764.sHtML</a></p><br><br>
+<br><br><h3>宁波致1死4伤车祸司机突发疾病</h3><br>
+<p>中美俄反无人机神器有何不同<br><br> | 来源：<a>http://www.sun-kids.net/?x/38833538.sHtML</a></p><br><br>
+<br><br><h3>我找了3000人进行高考生存挑战！</h3><br>
+<p>【Spirit】我们早已习惯作为反派登场，嘘声再大一点根本听不见！<br><br> | 参考来源：<a>http://bbs.blog.xhw-tech.cn/?x/12538014.sHtML</a></p><br><br>
+<br><br><h3>银川一中学施行发型令：不合格不让进</h3><br>
+<p>【纪录片TV】大乾乾被撞成两半了……<br><br> | 信息来源：<a>http://www.bbs.xhw-tech.cn/?x/91331165.sHtML</a></p><br><br>
+<br><br><h3>甘肃平凉公安打掉2个恶势力犯罪组织</h3><br>
+<p>“得了一种只能说真话的怪病”<br><br> | 内容来源：<a>http://www.bbs.marunon.cn/Article/details/17351635.sHtML</a></p><br><br>
+<br><br><h3>机器人跑步 一个章若楠一个宋亚轩</h3><br>
+<p>《崩坏：星穹铁道》知更鸟•晴歌角色PV——「追赶风的方向」<br><br> | 数据来源：<a>http://www.bbs.ttp8.cn/?x/68918751.sHtML</a></p><br><br>
+<br><br><h3>中美1.5轨对话今天在北京举行</h3><br>
+<p>刘亦菲金九芭莎封面<br><br> | 消息来源：<a>http://www.chengbeiyoueryuan.com/?x/71850621.sHtML</a></p><br><br>
+<br><br><h3>滴滴给专车配可乐 乘客司机褒贬不一</h3><br>
+<p>媒体：扶不扶不能再成为社会阴影<br><br> | 新闻来源：<a>http://www.bbs.hnsili.cn/Article/details/79994673.sHtML</a></p><br><br>
+<br><br><h3>电影八仙</h3><br>
+<p>散瞳验光伤害孩子眼睛系谣言<br><br> | 报道来源：<a>http://www.yxgccx.com/?x/44720311.sHtML</a></p><br><br>
+<br><br><h3>《海阔天空》一个人的乐队</h3><br>
+<p>鲁豫对话陈岚：65岁「再出道」，她从向太做回陈岚 | 陈鲁豫·慢谈EP24【视频播客】<br><br> | 媒体来源：<a>http://www.bbs.ttp8.cn/?x/37412908.sHtML</a></p><br><br>
+<br><br><h3>“扶老人被索赔”事件 完整监控视频</h3><br>
+<p>氧化菊删除权志龙签名酒视频<br><br> | 资料出处：<a>http://www.yxgccx.com/?x/40944965.sHtML</a></p><br><br>
+<br><br><h3>银川一中学施行发型令：不合格不让进</h3><br>
+<p>头文字D主角车集合PK<br><br> | 信息出处：<a>http://bbs.blog.hainansili.cn/Article/details/87303576.sHtML</a></p><br><br>
+<br><br><h3>司机报警有黄气球直冲机场民警看懵</h3><br>
+<p>新华社发文庆贺 AG 电子竞技俱乐部夺得 2026 世俱杯总冠军，这一奖项含金量有多大？<br><br> | 参考资料：<a>http://www.bbs.acprint.cn/?x/30645083.sHtML</a></p><br><br>
+<br><br><h3>AI短片槐灯</h3><br>
+<p>现实版好柿多蘑来了<br><br> | 综合来源：<a>http://www.blog.acprint.cn/?x/35657794.sHtML</a></p><br><br>
+<br><br><h3>西甲第二轮马德里竞技2-2比利亚雷亚尔，阿尔瓦雷斯遭到了马竞主场球迷的狂嘘，你如何看待这种情况？</h3><br>
+<p>新加坡总理鼓励华人多讲华语<br><br> | 素材来源：<a>http://www.bbs.mingjia56.cn/Article/details/81317784.sHtML</a></p><br><br>
+<br><br><h3>印度高管赴华签证过审率骤降</h3><br>
+<p>心动9这三分钟好be<br><br> | 相关来源：<a>http://bbs.blog.acprint.cn/?x/83659233.sHtML</a></p><br><br>
+<br><br><h3>银川一中学施行发型令：不合格不让进</h3><br>
+<p>多位专家被罚 栽在同一件“小事”上<br><br> | 来源：<a>http://www.bbs.qjphr.cn/?x/32169728.sHtML</a></p><br><br>
+<br><br><h3>外媒：今年或是泽连斯基最艰难一年</h3><br>
+<p>为什么生活中要注意控糖？<br><br> | 参考来源：<a>http://www.sun-kids.net/?x/10375020.sHtML</a></p><br><br>
+<br><br><h3>我的世界：绿植床榻！占地小却超精致，生存前期也能拥有的温馨小角！</h3><br>
+<p>青春环游记第三季<br><br> | 信息来源：<a>http://www.blog.tanshengyueqi.cn/Article/details/00890899.sHtML</a></p><br><br>
+<br><br><h3>时光音乐会</h3><br>
+<p>林依轮回应林子濠恋情<br><br> | 内容来源：<a>http://www.jzgbk.com/?x/63672708.sHtML</a></p><br><br>
+<br><br><h3>自动驾驶违法拟由车企担责</h3><br>
+<p>曝iPhone18Pro涨幅堪称温和<br><br> | 数据来源：<a>http://www.blog.hnsili.cn/Article/details/04702393.sHtML</a></p><br><br>
+<br><br><h3>美方炒作产能过剩：或将对华加税7.5%</h3><br>
+<p>明确自动驾驶违章原则<br><br> | 消息来源：<a>http://www.blog.3cn.com.cn/Article/details/38808380.sHtML</a></p><br><br>
+<br><br><h3>美或将对华加税7.5%</h3><br>
+<p>“救援航母”挺进广西宁明灾区<br><br> | 新闻来源：<a>http://www.blog.marunon.cn/Article/details/20800428.sHtML</a></p><br><br>
+<br><br><h3>扶老人被索赔店主支付的1.9万获返还</h3><br>
+<p>如何评价阿森纳与阿尔瓦雷斯的转会传闻？<br><br> | 报道来源：<a>http://www.bbs.acprint.cn/?x/26608364.sHtML</a></p><br><br>
+<br><br><h3>50国发表反俄声明 美国未参与</h3><br>
+<p>电影八仙<br><br> | 媒体来源：<a>http://bbs.blog.ttp8.cn/?x/35158907.sHtML</a></p><br><br>
+<br><br><h3>国安部：靖国神社就是“战犯神社”</h3><br>
+<p>菲律宾一轮船海上沉没全过程曝光<br><br> | 资料出处：<a>http://bbs.blog.millnair.com.cn/?x/79926733.sHtML</a></p><br><br>
+<br><br><h3>提前40秒进图？三角洲完蛋了！</h3><br>
+<p>通用116万辆车或存风险被升级调查<br><br> | 信息出处：<a>http://www.blog.mensplus.com.cn/?x/76904033.sHtML</a></p><br><br>
+<br><br><h3>严肃观看儿子的历史记录</h3><br>
+<p>宁波交通事故<br><br> | 参考资料：<a>http://www.sdrsa.com/?x/36503031.sHtML</a></p><br><br>
+<br><br><h3>孟子义拉不开便利店门</h3><br>
+<p>同样吃苦，为什么山河四省省吃俭用， 云贵川渝是活在当下？<br><br> | 综合来源：<a>http://www.blog.xhw-tech.cn/?x/22953425.sHtML</a></p><br><br>
+<br><br><h3>美前大使称以缺乏长期生存策略</h3><br>
+<p>为啥地下党发报，不把电台藏在马车或者黄包车上，一边转圈一边发报？<br><br> | 素材来源：<a>http://www.blog.millnair.com.cn/?x/27786087.sHtML</a></p><br><br>
+<br><br><h3>金鹰奖提名名单</h3><br>
+<p>官方确认帮扶老人遭索赔店主不担责<br><br> | 相关来源：<a>http://www.blog.hainansili.cn/Article/details/70008327.sHtML</a></p><br><br>
+<br><br><h3>感觉艾米从12岁开始就长开了</h3><br>
+<p>刘亦菲金九芭莎封面<br><br> | 来源：<a>http://bbs.blog.ttp8.cn/?x/28413591.sHtML</a></p><br><br>
+<br><br><h3>多款APP被通报</h3><br>
+<p>皮质醇水平越低越好？真相来了<br><br> | 参考来源：<a>http://www.scx2z.com/?x/23389155.sHtML</a></p><br><br>
+<br><br><h3>李佳航回应李金铭娄艺潇邓家佳合体</h3><br>
+<p>苹果秋季发布会9月9日凌晨1点举办<br><br> | 信息来源：<a>http://www.bbs.ttp8.cn/?x/46710563.sHtML</a></p><br><br>
+<br><br><h3>车辆冲入西湖 一男一女从水中爬出</h3><br>
+<p>全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境<br><br> | 内容来源：<a>http://www.gxhezhong.net/?x/27468086.sHtML</a></p><br><br>
+<br><br><h3>原创民俗AI短片《槐灯》</h3><br>
+<p>LPL季后赛最新赛程<br><br> | 数据来源：<a>http://m.bbs.tanshengyueqi.cn/Article/details/53518396.sHtML</a></p><br><br>
+<br><br><h3>卓荣泰把救灾变政治攻防遭批</h3><br>
+<p>官方确认「帮扶老人遭索赔案」店主不承担法律责任，此前被索赔1.9万已全额返还，这件事带给我们什么反思？<br><br> | 消息来源：<a>http://bbs.blog.hengruntech.cn/?x/55074307.sHtML</a></p><br><br>
+<br><br><h3>通用116万辆车或存风险被升级调查</h3><br>
+<p>为何立秋后北方仍然湿热<br><br> | 新闻来源：<a>http://bbs.blog.tanshengyueqi.cn/Article/details/87280974.sHtML</a></p><br><br>
